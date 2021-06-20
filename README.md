@@ -1,2 +1,2 @@
 # mitene-everyday
-Keep the pictures up-to-date
+Keep the pictures up-to-date 👶
